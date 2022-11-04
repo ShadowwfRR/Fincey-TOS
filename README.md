@@ -1,5 +1,5 @@
 # Fincey-TOS
-By using Lewsion  means you agree and accept the following terms of service. https://discord.com/terms
+By using Fincey  means you agree and accept the following terms of service. https://discord.com/terms
 
 #Prohibited Activities
 
